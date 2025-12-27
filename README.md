@@ -1,0 +1,2 @@
+# The-Self-Experiencing-Universe-A-Manifesto-for-an-Emergent-Reality
+Author:Waldemar Lis   Year: 2025 Ontology based on relational potential and pattern stabilization. Reality is of self-stabilizing relational structures through which time, matter, and consciousness emerge.  #Amazon: https://a.co/d/b1dMBPm / Archive.org: https://archive.org/details/the-self-experiencing-universe-a-manifesto-for-an-emergent-reality
